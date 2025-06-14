@@ -38,4 +38,4 @@ Check out one of my latest projects: [Neon Nights](https://github.com/Joaovitor1
 
 ---
 
-🧪 Always evolving. Thanks for visiting my profile! 👨‍💻✨
+🧪 The mind that opens to a new idea never returns to its original size. Thanks for visiting my profile! 👨‍💻✨
